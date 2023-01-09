@@ -13,7 +13,7 @@ ISTYLE APPLE TRGOVINA
 
 
 
-![adapteri_i_kabeli](https://user-images.githubusercontent.com/122228958/211298450-727b6e64-9044-4321-8986-df395e7036ea.png)
+![adapteri_i_kabeli](https://user-images.githubusercontent.com/122228958/211299085-82d27c14-c8be-42bc-a256-5f4e50b5847b.png)
 
 
 
